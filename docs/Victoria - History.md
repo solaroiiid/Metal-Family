@@ -1,0 +1,13 @@
+# Victoria/History
+
+Source: https://metalfamily.fandom.com/wiki/Victoria/History
+
+## Gallery
+
+Not much is known about Victorya's life before meeting Glam except that she barely attended school, had a love for bikes since childhood, liked to play with ragdolls and small toy bikes and run over other girls' toys with it, got her first tattoo at the age of seventeen and presumably cut o ties with her parents, albeit the reason for this is unknown. She eventually met her best friend Anna and joined a biker gang called "Morning Beavers", where she seemed to be close to fellow biker Bug, with whom Vicky went to the gym with and it is implied that over time Bug grew to like as more than friends.
+
+The day Victoria met Glam she accidentally dropped her motorbike's keys on a drain while eating and was forced to hijack her own bike to be able to use it before leaving, unaware that Glam was watching her the whole time. Glam, enraptured by her, managed to get her keys back and intended to return them to her. When Glam nally found Victoria, Glam tried to give Victoria her keys but was stopped by Bug, who eortlessly ung him against a trash can, with Bug and Victoria sharing a laugh at Glam's expense. Bug then tried to kiss Victoria but she refused by roughly grabbing his face, which drove an angry Bug to slap her across the face and she retaliated by knocking him out, ipping o Glam before speeding o on her bike.
+
+Nevertheless, Glam refused to give up, tracked down Victoria, and did about anything to get her attention, but she wanted nothing to do with him until Glam stood in the middle of a road that Victoria was trying to cross. Unable to evade Glam as he refused to move from his place, along with the fact that she refused to stop, Victoria ended up crashing into him and both of them were stuck in the same hospital room, Glam with his arms and legs broken while Victoria had her own legs broken as well. Glam then took the chance to give her what he had been holding in his hand the entire time; her bike's keys. Victoria was shocked but still gave him a look that said she was clearly not amused.
+
+After that, she got to know Glam and grew to love him, even to the point of engaging in activities that he loved but she hated like going to ballet recitals that made her fall asleep and eating healthy meals. They eventually got married and had two sons, Dee and Heavy. She also remained friends with Anna and Bug despite what happened between the latter and Victoria, working together at their garage and arranging competitions at their club to earn some extra money and always splitting the money amongst themselves.
